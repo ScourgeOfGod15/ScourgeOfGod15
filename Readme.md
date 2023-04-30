@@ -11,7 +11,7 @@
 
 <div align="center">
 
-- 🌱 I’m currently learning **Mencintaimu setiap hari**
+- 🌱 I’m currently learning **Membuatmu jatuh cinta setiap hari**
 
 - 💬 Ask me about **Dirimu yang keberadaannya begitu spesial**
 
