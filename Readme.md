@@ -11,9 +11,9 @@
 
 <div align="center">
 
-- 🌱 I’m currently learning **Membuatmu jatuh cinta setiap hari**
+- 🌱 I’m currently learning **Card Game**
 
-- 💬 Ask me about **Dirimu yang keberadaannya begitu spesial**
+- 💬 Ask me about **Anything Related**
 
 </div>
 
